@@ -18,4 +18,5 @@
 <img width="1440" height="1080" alt="55104eece998e59726c7a6bc137d02b2_compress" src="https://github.com/user-attachments/assets/003ac4bf-be42-45a5-9377-c69de6de8cce" />
 ## 2026.8.2
 番茄鸡蛋汤、蛋炒饭
-
+## 2026.8.17
+辣椒炒干鱼仔、酸辣土豆丝
