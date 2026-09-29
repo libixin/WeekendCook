@@ -30,3 +30,6 @@
 酸辣土豆丝、番茄鸡蛋汤、蛋炒饭
 ## 2026.9.6
 猪骨炖海带
+## 2026.9.26
+蒜苗炒腊牛肉、番茄鸡蛋汤
+<img width="1440" height="1080" alt="355c0ffca9c5272efdf4f0bf8164f7a3_compress" src="https://github.com/user-attachments/assets/9b55ae91-d858-4a22-9c74-970b6c5de278" />
