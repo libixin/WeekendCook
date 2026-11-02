@@ -33,3 +33,10 @@
 ## 2026.9.26
 蒜苗炒腊牛肉、番茄鸡蛋汤
 <img width="1440" height="1080" alt="355c0ffca9c5272efdf4f0bf8164f7a3_compress" src="https://github.com/user-attachments/assets/9b55ae91-d858-4a22-9c74-970b6c5de278" />
+## 2026.10.25
+青椒炒牛肉
+## 2026.10.31
+青椒牛肉、酸辣萝卜丝
+<img width="2170" height="1024" alt="3c8723d294c3c222490a9e9ae1f32fda" src="https://github.com/user-attachments/assets/f38eed99-c125-4633-b11f-e8bd51db4c52" />
+## 2026.11.1
+青椒牛肉、酸汤饭
